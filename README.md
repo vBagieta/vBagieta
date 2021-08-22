@@ -1,1 +1,1 @@
-jestem bagieta i mam nudne zycie ez
+Niektórzy mówią ze mam nudne życie, po części prą
