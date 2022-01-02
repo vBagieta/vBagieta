@@ -1,3 +1,3 @@
 Hi! I’m vBagieta!
 
-Currently learning Java 🍄
+Beginner Java Developer
